@@ -1,5 +1,5 @@
 
-## Bem-vindo(a) ao perfil de Samuel😁
+## Bem-vindo(a) ao perfil de Atlas😁
 
  <div>
    <a href="https://github.com/Samu-Atlas">
